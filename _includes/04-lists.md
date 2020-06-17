@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+here is my list 😊:
+1. shoes
+2. socks
+3. shirt
